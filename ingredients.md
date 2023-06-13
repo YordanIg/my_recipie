@@ -3,4 +3,4 @@
 * 2 tsp salt
 * 1/2 onion
 * chopped garlic
-* 1 tbsp coriander
+* 1.5 tbsp coriander
